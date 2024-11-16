@@ -1,7 +1,7 @@
 👋 Hi, I’m Raju (@Raju1108)
 
 👀 **Interests:**  
-- Software development, web development, and data analysis.
+- Software Development, Web Development, Data Analysis, Full Stack Development.
 - Cooking, traveling, and video editing.
 - Fitness and working out.
 
