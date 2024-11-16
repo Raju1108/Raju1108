@@ -17,7 +17,8 @@
 
 📫 **How to Reach Me:**  
 - [Raju's LinkedIn](https://www.linkedin.com/in/chowdam-naga-narasimharaju-1378b3271/) 
-- [Email:Raju's mail](rajuc11082002@gmail.com)
+Email: [Raju's mail](mailto:rajuc11082002@gmail.com)
+
 
 😄 **Pronouns:**  
 - He/Him
