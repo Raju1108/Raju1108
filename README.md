@@ -16,8 +16,8 @@
 - Open-source contributions and innovative software solutions.
 
 📫 **How to Reach Me:**  
-- [LinkedIn](https://www.linkedin.com/in/raju1108) (Update the link with your LinkedIn profile)
-- Email: [your-email@example.com](mailto:rajuc11082002@example.com)
+- [Raju's LinkedIn](https://www.linkedin.com/in/raju1108) (Update the link with your LinkedIn profile)
+- [Email:Raju's mail](mailto:rajuc11082002@example.com)
 
 😄 **Pronouns:**  
 - He/Him
