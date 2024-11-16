@@ -16,7 +16,7 @@
 - Open-source contributions and innovative software solutions.
 
 📫 **How to Reach Me:**  
-- [Raju's LinkedIn](https://www.linkedin.com/in/raju1108) (Update the link with your LinkedIn profile)
+- [Raju's LinkedIn](https://www.linkedin.com/in/chowdam-naga-narasimharaju-1378b3271/) 
 - [Email:Raju's mail](mailto:rajuc11082002@example.com)
 
 😄 **Pronouns:**  
