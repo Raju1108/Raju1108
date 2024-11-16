@@ -17,7 +17,7 @@
 
 📫 **How to Reach Me:**  
 - [LinkedIn](https://www.linkedin.com/in/raju1108) (Update the link with your LinkedIn profile)
-- Email: [your-email@example.com](mailto:your-email@example.com)
+- Email: [your-email@example.com](mailto:rajuc11082002@example.com)
 
 😄 **Pronouns:**  
 - He/Him
